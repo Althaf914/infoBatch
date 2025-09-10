@@ -5,3 +5,4 @@ Althaf: Guys, it'll be easy for us to communicate through whatsapp, so share you
 Vigneswari: Is there any format for ppt?
 Vigneswari: Guys can you reply please
 Althaf: No format. Guy's share mobile number to make communication easy.
+Vigneswari: Is it ok with others?
