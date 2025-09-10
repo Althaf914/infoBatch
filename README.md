@@ -6,3 +6,4 @@ Vigneswari: Is there any format for ppt?
 Vigneswari: Guys can you reply please
 Althaf: No format. Guy's share mobile number to make communication easy.
 Vigneswari: Is it ok with others?
+Althaf: Iswarya already shared. Don't tell in the meet about sharing numbers.
