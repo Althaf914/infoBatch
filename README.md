@@ -1,4 +1,4 @@
 Althaf: Data Collection Process is Completed
 Vigneswari: Ok Althaf. Guys can you please make it quick by tomorrow mrng, so i can make ppt as well.
 Althaf: Ok Vigneswari. 
-Iswarya: I'll be not joining today as i'm having interview today.
+Iswarya: I'll be not joining today as i'm in clg and i also sent the mail to Sir.
